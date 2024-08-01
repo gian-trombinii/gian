@@ -13,4 +13,4 @@ giancarlos.formaggi@escola.pr.gov.br
 @gian_trombinii
 
 
-![](https://media.tenor.com/BkZl67YmYLkAAAAM/archie.gif)
+![](https://tenor.com/pt-BR/view/archie-gif-452160875645001913)
