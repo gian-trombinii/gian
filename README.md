@@ -13,4 +13,4 @@ giancarlos.formaggi@escola.pr.gov.br
 @gian_trombinii
 
 
-![](https://tenor.com/pt-BR/view/archie-gif-452160875645001913)
+![](https://media1.tenor.com/m/eGd4DkV8WS4AAAAC/garfield-dancing.gif)
